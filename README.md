@@ -1,1 +1,1 @@
-# rsschool-cv
+https://volhamakanu.github.io/rsschool-cv/
